@@ -4,7 +4,7 @@ Saya `Ilham Wahyudin`, seorang anak yang disayang oleh kedua orangtuanya, teman 
 
 Di blog sederhana ini, saya ingin berbagi `cerita, pengalaman dan harta berupa ilmu` yang barangkali pembaca butuhkan. Saya berharap, semoga tulisan-tulisan yang saya muat di blog sederhana ini bisa bermanfaat bagi Anda dan orang lain. 
 
-Bila ingin mengetahui lebih lanjut tentang saya silakan baca tulisan *Tentang Ilham*
+Bila ingin mengetahui lebih lanjut tentang saya silakan baca tulisan *Tentang Ilham* `belum terbit`
 
 ## After Mikir-mikir
 1. [Kenapa Ilham Menulis, dan Kenapa Setiap Orang Harus Menulis](#) `belum terbit`
@@ -24,4 +24,4 @@ Bila ingin mengetahui lebih lanjut tentang saya silakan baca tulisan *Tentang Il
 2. [Ada Banyak Ungkapan yang Tidak Mampu Diterjemahkan Kedalam Bahasa Lain, Maka...](#) `belum terbit`
 3. [Urutan Belajar Bahasa Arab Menurut Ilham](#) `belum terbit`
 
-Semoga Allah mudahkan saya untuk menulis wishlist tulisan yang ingin saya tulis. Oiya, bila ingin menghubungi saya, silakan gunakan Messenger, [Go Messenger](https://www.messenger.com/t/hams.rmdhn)
+Semoga Allah mudahkan saya untuk menulis wishlist tulisan yang ingin saya tulis. Oiya, bila ingin menghubungi saya, silakan hubungi via Messenger, [Go to Messenger](https://www.messenger.com/t/hams.rmdhn)
