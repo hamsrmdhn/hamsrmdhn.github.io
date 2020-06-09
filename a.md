@@ -2,3 +2,4 @@
 
 Disini kita akan melihat cara menulis
 sdf
+w
