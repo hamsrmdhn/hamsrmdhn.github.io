@@ -8,7 +8,7 @@ Bila ingin mengetahui lebih lanjut tentang saya silakan baca tulisan <b>Tentang 
 
 ## [Kisah & Pengalaman >](https://hamsrmdhn.github.io/kisah)
 ## [Persiapan Buat Masa Depan >](https://hamsrmdhn.github.io/future)
-## [ >](https://hamsrmdhn.github.io/friendship)
+## [Memperbaiki Sisi Islam Kita >](https://hamsrmdhn.github.io/muhasabah)
 ## [Love & Friendship >](https://hamsrmdhn.github.io/friendship)
 
 Semoga Allah mudahkan saya untuk menulis wishlist tulisan yang ingin saya tulis. Oiya, bila ingin menghubungi saya, silakan hubungi via Messenger, [Go to Messenger](https://www.messenger.com/t/hams.rmdhn)
