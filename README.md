@@ -10,5 +10,8 @@ Bila ingin mengetahui lebih lanjut tentang saya silakan baca tulisan <b>Tentang 
 <h3> <a href="https://hamsrmdhn.github.io/future">Persiapan Buat Masa Depan ></a></h3>
 <h3> <a href="https://hamsrmdhn.github.io/muhasabah">Memperbaiki Sisi Islam Kita ></a></h3>
 <h3> <a href="https://hamsrmdhn.github.io/friendship">Love & Friendship ></a></h3>
+<h3> <a href="https://hamsrmdhn.github.io/about">About Me ></a></h3>
 
-Semoga Allah mudahkan saya untuk menulis wishlist tulisan yang ingin saya tulis. Oiya, bila ingin menghubungi saya, silakan hubungi via Messenger, [Go to Messenger](https://www.messenger.com/t/hams.rmdhn)
+Semoga Allah mudahkan saya untuk menulis wishlists tulisan yang ingin saya tulis. Oiya, bila ingin menghubungi saya, silakan hubungi via Messenger, [Go to Messenger](https://www.messenger.com/t/hams.rmdhn)
+
+<img src="https://raw.githubusercontent.com/hamsrmdhn/hamsrmdhn.github.io/master/asami%2002.png">
