@@ -21,3 +21,5 @@ Ini merupakan produk yang paling bagus diantara kami disini. Ini adlaah kaos pol
 <h3><a href="https://twiter.com/hams_rmdhn"> Kaos Polos #1 </a></h3>
 
 Ini merupakan produk yang paling bagus diantara kami disini. Ini adlaah kaos polos nomor wahid di indonesia, dengan bahan 100% katun dan harga yang murah, Anda akan beruntung beli disini, haha !! <a href="https://wa.me/6285812789743"><b>Beli Sekarang</b></a>
+
+Catatan : `Online shop ini dioptimalkan untuk perangkat mobile`
