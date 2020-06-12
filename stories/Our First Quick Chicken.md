@@ -1,7 +1,5 @@
 # Our First Quick Chicken
 
-Our First Quick Chicken
-
 Seperti biasa, kami belajar malam sampai jam 9 malam.
 
 Nah, pas itu, abis belajar, temen2 yg putri pulang duluan. Hingga tinggallah si ilham sama aas. Karena mereka dua orang yang ~ganteng~ keterlaluan.
