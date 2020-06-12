@@ -1,4 +1,4 @@
-# Syarat Sukses ? Ah malu nulisnya...
+# Syarat Sukses ? Ah malu nulisnya
 
 Okay, bismillah.. Sebenarnya saya agak malu menulis tulisan semacam ini, terkesan kekanak-kanakan dan motivasional. But, i'll try to jelasin dengan sudut pandang kita saat ini sebagai seorang yang sudah berumur dan menghadapi kenyataan kehidupan yang keraasss :)
 
